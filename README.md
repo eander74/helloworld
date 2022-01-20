@@ -13,6 +13,7 @@ To apply this solution to making cereal, you must have the following supplies:
 4. A spoon
 
 
+### Directions
 
 Follow these simple steps to make the perfect bowl of cereal:
 
